@@ -1,1 +1,1 @@
-[interviewbit.com](https://www.interviewbit.com/dashboard/)
+[interviewbit.com](https://www.interviewbit.com/invite/?ref=header_menu)
